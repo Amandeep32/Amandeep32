@@ -1,6 +1,7 @@
 - 👋 Hi, I’m @Amandeep32
 -    I'm from patna(BIHAR)
 - 👀 I’m interested to play with technology.....
+-    I'm Done ... Java-Script, HTML, CSS
 - 🌱 I’m currently learning about full stack web developer
 - 📫 If U want to talk with me then call me on (+91 9905836988) this Number
 - My insta Id-https://www.instagram.com/__amandeep05/
