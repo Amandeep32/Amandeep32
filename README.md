@@ -7,7 +7,7 @@
 - My insta Id-https://www.instagram.com/__amandeep05/
 - Mail- amandeep260500@gmail.com
 
-//hhfjytjytut
+
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=Amandeep32&label=Profile%20views&color=0e75b6&style=flat" alt="Amandeep32" /> </p>
 
