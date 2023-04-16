@@ -6,7 +6,7 @@
 - 📫 If U want to talk with me then call me on (+91 9905836988) this Number
 - My insta Id-https://www.instagram.com/__amandeep05/
 - Mail- amandeep260500@gmail.com
-- 
+
 
 
 
