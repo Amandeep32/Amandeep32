@@ -16,7 +16,7 @@
 
 
 
-- 🌱 I’m currently learning *Reactjs,nextjs,nodejs etc*
+- 🌱 I’m currently learning *Reactjs, nextjs, nodejs etc*
 
 
 
